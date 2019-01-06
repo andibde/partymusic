@@ -1,4 +1,8 @@
 # Best Party Music 2019
+
+Whole Playlist on YouTube: [https://www.youtube.com/playlist?list=PLpcLatOYr-rxEmCnrFehHVRgUL40hVknf](https://www.youtube.com/playlist?list=PLpcLatOYr-rxEmCnrFehHVRgUL40hVknf)
+
+
 Ash O'Connor & Curbi - Steeper https://www.youtube.com/watch?v=UhVbNDEDc1k
 
 Ellis & Anna Yvette - Migraine https://www.youtube.com/watch?v=szaeJIvfXYw
